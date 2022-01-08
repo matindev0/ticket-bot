@@ -1,1 +1,1 @@
-# [ticket-bot](https://discord.gg/light-moon
+# [ticket-bot](https://discord.gg/light-moon)
